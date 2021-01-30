@@ -48,7 +48,4 @@
 6. Mexa bem e acrescente a salsinha, o tomilho e o alecrim fresco.
 7. Adicione a água e tempere com sal e pimenta-do-reino a gosto.
 
-
-
-
-
+Referência: https://www.tudogostoso.com.br/receita/200107-estrogonofe-vegano.html
